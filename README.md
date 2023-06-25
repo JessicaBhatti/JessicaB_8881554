@@ -1,1 +1,3 @@
-# JessicaB_8881554
+Name: Jessica Bhatti
+
+Student: 8881554
